@@ -8,3 +8,4 @@
 fukugys/fukugys is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+![cxffklgx;fgjxdl;gj](https://user-images.githubusercontent.com/105182216/209032970-1572cede-1609-453d-ade6-5bf48ebc195c.png)
